@@ -1,2 +1,1 @@
-# raju
-lenovo is my phone
+I am THE LEGEND
